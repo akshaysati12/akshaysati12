@@ -1,5 +1,5 @@
 
-<h1 align="center">Hi 👋, I'm Akshay</h1>
+<h3align="center">Hi 👋, I'm Akshay</h3>
 <h3 align="center">A passionate Security Enginner and Software Developer from India</h3>
 <img align="right" alt="Coding" width="400" src="https://camo.githubusercontent.com/a891d7d5917bebbdfcedb02348ab06be64822b69e8d1cfdad45e6dc5279f6ca7/68747470733a2f2f6d656469612e74656e6f722e636f6d2f7a7a6e746d325f3942336741414141432f6861636b65722e676966">
 
