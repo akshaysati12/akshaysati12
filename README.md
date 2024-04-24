@@ -15,6 +15,8 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Ljve1xqz2zJbNV5DbSSc-hfK9VR0UGGi/view?usp=sharing](https://drive.google.com/file/d/1Ljve1xqz2zJbNV5DbSSc-hfK9VR0UGGi/view?usp=sharing)
 
+- Linkedin Profile [https://www.linkedin.com/in/akshaysati/](https://www.linkedin.com/in/akshaysati/)
+
 - ⚡ Fun fact **I think I am funny.😁**
 
 <h3 align="left">Connect with me:</h3>
