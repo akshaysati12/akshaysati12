@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Cyber Security, Web Designig, Ethical Hacking...**
 
-- 📫 How to reach me **satiakshay7626@gmail.com**
+- 📫 How to reach me **Akshaysati2002@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Ljve1xqz2zJbNV5DbSSc-hfK9VR0UGGi/view?usp=sharing](https://drive.google.com/file/d/1-96R9-bWcOCmvpG-QMKNWeTGtW60pW2p/view?usp=sharing)
 
