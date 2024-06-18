@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Akshaysati2002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1UlvCKvoRC8KVFhhOlhmZhIZEpbfd8fhs/view?usp=sharing](https://drive.google.com/file/d/1UlvCKvoRC8KVFhhOlhmZhIZEpbfd8fhs/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1OP3Yq8ECFr5VzgWUeVMKuOc8feB1nGpT/view](https://drive.google.com/file/d/1OP3Yq8ECFr5VzgWUeVMKuOc8feB1nGpT/view)
 
 - Linkedin Profile [https://www.linkedin.com/in/akshay-sati-b41bb5283/](https://www.linkedin.com/in/akshay-sati-b41bb5283/)
 
